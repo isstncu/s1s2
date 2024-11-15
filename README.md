@@ -4,8 +4,4 @@
 uploading to OneDrive...
 
 
-Baidu Netdisk:
-
-https://pan.baidu.com/s/13rYqENQUrcA1VFU3Efsuig 
-
-code: lekm
+Baidu Netdisk: https://pan.baidu.com/s/13rYqENQUrcA1VFU3Efsuig  code: lekm
